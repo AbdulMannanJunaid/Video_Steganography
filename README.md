@@ -86,5 +86,5 @@ Contributions are always welcome!
 
 ## Support
 
-For support, email 4k5h4y4rjun@duck.com.
+For support, email junaid51118@gmail.com , 4k5h4y4rjun@duck.com
 
